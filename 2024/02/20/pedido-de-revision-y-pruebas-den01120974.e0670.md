@@ -15,7 +15,7 @@ sha256: "0d875d26821c9def8def178529b9a0be4cdd8f8a9d997d7df71d3f26e00fa209"
 
 Mi sugerencia de cualquier modo es completar el formulario que le pasé para cumplir con la formalidad de lo que se requiere y firmarlo de puño y letra como le expliqué por teléfono.
 Es un formato que se puede abrir con cualquier procesador de texto.
-Cómo ustedes me mencionó que no usa windows y en el caso de creerlo conveniente que no puedo invitarlo a venir personalmente a la sede de paseo Colón 1333 piso 8 el día miércoles de 9 a 15 hs y entregarle uno impreso para que pueda completarlo firmarlo y enviarlo.
+Cómo usted me mencionó que no usa windows y en el caso de creerlo conveniente, puedo invitarlo a venir personalmente a la sede de paseo Colón 1333 piso 8 el día miércoles de 9 a 15 hs y entregarle uno impreso para que pueda completarlo firmarlo y enviarlo. [vh]
 Quedo a sus  ordenes por WhatsApp para aclarar  cualquier duda.
 Saludos
 J Martín canepa.
